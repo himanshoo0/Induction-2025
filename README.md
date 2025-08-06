@@ -22,6 +22,27 @@ Then our HOD of Applied Science, Dr. Harpreet Kaur Grewal, gave a brief speech a
 She gave a speech about being persistent, motivated, being patient, and doing hard work towards our goal. 
 <br>
 
+Then our Honourable Principal Sir warmly welcomed us with his speech, he told us explore all the new opportunities that comes in our way.
+<br> 
+Our induction ended at 3:40 pm.
+
+
+
+<h1>Day 2</h1>
+From 9:30 am we had English proficiency test.
+<br> And from 10:30 am, we had a Maths proficiency test. <br>
+After completion of our test, we had to go to the auditotrium for 2 lectures. 
+<br> One of the lecture was taken by Dr. Priyadarshini Mam about Human relationships. 
+She was explaining the difference between excitement and happiness. She also gave us a home assignment.
+
+<h1>Day 3</h1>
+From 9:30 am, we had our English class by Aastik Sharma Sir.<br>
+Then we had our second class of chemistry by Karan Bhalla Sir.<br>
+Then we had to go to the auditorium.
+One of the session was taken by Causmic Club of our college. 
+
+<h1>Day 4</h1>
+
 
 
 
