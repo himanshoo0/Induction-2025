@@ -56,7 +56,8 @@ She taught us the lesson of how to develop the right understanding, Relationship
 <br>
 11:30 to 1:30pm
 <br>
-<h1>Causmic club</h1>
+Causmic club<br>
+
 In this club, our seniors explained that there are lots of talent, personal development, and self-confidence to develop their skills for personal growth.
 End the class.
 
