@@ -42,6 +42,24 @@ Then we had to go to the auditorium.
 One of the session was taken by Causmic Club of our college. 
 
 <h1>Day 4</h1>
+<br>
+8:30 to 9:00 am 
+<br>
+Breakfast 
+I took breakfast Curd with tea and aloo paratha.
+After the breakfast, i was going to Auditorium.
+<br>
+9:30 am to 11:30am
+<br>
+A wonderful lecture on 'Human Value and the Importance of Life' has been started by Dr. Priyadarshni ma'am.
+She taught us the lesson of how to develop the right understanding, Relationship, and Physical activity.
+<br>
+11:30 to 1:30pm
+<br>
+<h1>Causmic club</h1>
+In this club, our seniors explained that there are lots of talent, personal development, and self-confidence to develop their skills for personal growth.
+End the class.
+
 
 
 
